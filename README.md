@@ -1,6 +1,6 @@
 ### ᴵᶠ ⁱ ˢʰᵒʷ ᵐʸ ᶠᵃⁿᵍˢ ʷⁱˡˡ ʸᵒᵘ ᵗᵉˡˡ ᵐᵉ ᵗʰᵃᵗ ᵗʰᵉʸʳᵉ ᶜᵒᵒˡ?...
 
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ![stakemyheart](https://iili.io/2nvOMbI.md.webp)
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ![Lucien + Minato](https://iili.io/3HlUQhF.webp)
 
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎
@@ -23,7 +23,7 @@ Add my fort : Headlightssi
 
  ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎  ![FANGS](https://iili.io/2nvDog4.md.gif)
 
-![3HlUQhF.webp](https://iili.io/3HlUQhF.webp)
+
  ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎‎ ‎‎‎  ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎‎ ‎‎‎ ‎ ‎ ‎‎ 
 
 
