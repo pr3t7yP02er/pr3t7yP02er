@@ -14,13 +14,18 @@
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ![touchmyfangs](https://iili.io/2nvk1tI.md.webp)
 
 Call Me Novi 
+
  16'000 years old. ( under 12 dni, 18+ iwc)
 
  
  I endulge in Fort fuckery (fortnite) PLEASE IF YOU PLAY ADD ME I NEED PEOPLE TO PLAY WITH </3 
+ 
      I mainly play zero build royale/reload and MM2, but ill play builds royale too! 
+     
  Mic on or off I CAN DO BOTH </3 
+ 
      user : Headlighttsi 
+     
  Torment / Nezumi / Minato / Kirishima main >_<
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎   ![inmycoffin](https://iili.io/2nvvafe.webp)
