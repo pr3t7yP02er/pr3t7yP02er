@@ -17,7 +17,7 @@ Call Me Novi + INT
  16'000 years old. ( under 12 dni, 18+ iwc)
 
  
-Add my fort : Headlightssi
+Ask for my fort
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎   ![inmycoffin](https://iili.io/2nvvafe.webp)
 
